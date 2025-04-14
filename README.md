@@ -23,7 +23,7 @@
 
 ![жиза 3 (1)](https://github.com/user-attachments/assets/968bec2e-2ff9-4df3-b78c-9881ad03657d) ![это я](https://github.com/user-attachments/assets/16e001a9-05d0-483b-b667-eb7d1689056e) ![суровая реальность (1)](https://github.com/user-attachments/assets/28bf0afc-0ea2-4a73-beb9-35012a6031c0) ![суровая реальность (3)](https://github.com/user-attachments/assets/a12bad2c-b21f-4eeb-bebd-ac4027f8b610) ![программист (1)](https://github.com/user-attachments/assets/ff1e0e32-11e7-4596-8867-168d52e13352)
 
-¤⊹٭٭⊹¤.•⨳•.*☆✬ ✬☆*.•⨳•.¤⊹٭٭⊹¤.•⨳•.*☆✬ ✬☆*.•⨳•.¤⊹٭٭⊹¤.•⨳•.**☆✬☆*.•⨳•.¤⊹٭٭⊹¤.•⨳•.*☆ ✬☆*.•⨳•.¤⊹٭٭⊹¤.•⨳•.*☆ ✬☆*.•⨳•.¤⊹٭٭⊹¤.•⨳•.*☆✬ ✬☆*.•  
+
 
 
 
