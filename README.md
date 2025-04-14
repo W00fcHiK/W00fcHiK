@@ -13,6 +13,7 @@
 
 ![флаг (1)](https://github.com/user-attachments/assets/6a499e16-1e1b-403e-8140-c58b05408122) (𝘏𝘦𝘵𝘦𝘳𝘰𝘴𝘦𝘹𝘶𝘢𝘭)
 
+![](https://64.media.tumblr.com/8eb5b01466ced72113f21f2380f49938/8fa898046db9fd10-e0/s250x400/0ecba2d4f620f063be2d1bfe609e57fc01628625.gifv)
 
 ミ★ Typologies: infj-t, sx5w4sp, 549, melancholic-sanguine. ★彡
 
@@ -22,23 +23,23 @@
 
 ![жиза 3 (1)](https://github.com/user-attachments/assets/968bec2e-2ff9-4df3-b78c-9881ad03657d) ![это я](https://github.com/user-attachments/assets/16e001a9-05d0-483b-b667-eb7d1689056e) ![суровая реальность (1)](https://github.com/user-attachments/assets/28bf0afc-0ea2-4a73-beb9-35012a6031c0) ![суровая реальность (3)](https://github.com/user-attachments/assets/a12bad2c-b21f-4eeb-bebd-ac4027f8b610) ![программист (1)](https://github.com/user-attachments/assets/ff1e0e32-11e7-4596-8867-168d52e13352)
 
+¤⊹٭٭⊹¤.•⨳•.*☆✬ ✬☆*.•⨳•.¤⊹٭٭⊹¤.•⨳•.*☆✬ ✬☆*.•⨳•.¤⊹٭٭⊹¤.•⨳•.**☆✬☆*.•⨳•.¤⊹٭٭⊹¤.•⨳•.*☆ ✬☆*.•⨳•.¤⊹٭٭⊹¤.•⨳•.*☆ ✬☆*.•⨳•.¤⊹٭٭⊹¤.•⨳•.*☆✬ ✬☆*.•  
 
 
 
-
-
-
-            
 ![я я я](https://github.com/user-attachments/assets/f8e0841a-c9da-42b7-98de-a03155d86a37)
 
 
                                                      
- ![](https://64.media.tumblr.com/f5df576b0b86f656eb752b9bdeeea6c2/1ca8f2696de80f42-cd/s100x200/4fc6addeddd67a47fcd15873da678fab6a9bcdd2.gifv)
+ ![]() ![](https://64.media.tumblr.com/51170cfb42c3dfd542e4f0e614407977/fddcf9c041d8da0a-b5/s100x200/adeaa09de5d098c80b8f57d032fc9405d191fb43.pnj) ![](https://64.media.tumblr.com/f5df576b0b86f656eb752b9bdeeea6c2/1ca8f2696de80f42-cd/s100x200/4fc6addeddd67a47fcd15873da678fab6a9bcdd2.gifv)  ![](https://64.media.tumblr.com/6d86d30407b95606d3701a5b64409eb3/f7ae93205e7d88d9-18/s100x200/addf24cebb980a19ba53de81112e9bfc0f105461.pnj) ![](https://64.media.tumblr.com/22fc0f0ad89b1b7a7f3991f74da06c0d/d43f2d48cf0d043f-d3/s100x200/409692d5850a8b089132ac15f7a20181ce25feda.pnj) ![](https://64.media.tumblr.com/c06e0e5ab6104edc4cf37f83ada6b04c/666a6bfd8dbd0882-af/s100x200/8a74fabf8145ccb149eb4c3b72d64326fdcbd247.pnj) ![](https://64.media.tumblr.com/f72d43510959913895dba77f31c6ad53/e79ab856b43057f9-01/s100x200/e3f56c62f96d2c2b68e76fe6995f9dd1798c96b4.pnj) ![](https://64.media.tumblr.com/a3f54803dd8770cf6d06d2de8e05b3f2/62fa2fa6a73a649d-ff/s250x400/5a4a0904abf6b6a1e53b382311feaefe9c65dbe0.pnj) ![](https://64.media.tumblr.com/dffe20510c9bc6c27ffcde59fa5d7621/ea55df700a211ec6-13/s100x200/57a7810677b8fe4b2add12d19de583994514780b.gifv)
 
  ![милашки](https://github.com/user-attachments/assets/3aaf2fb9-ef69-452c-9bf0-e0aaaa99434d)
+ 
+`✵•.¸,✵°✵.｡.✰✰.｡.✵°✵,¸.•✵´
 
+![](https://64.media.tumblr.com/1ea9a881b3ce977910860c3f34954648/834d2380d3852309-24/s100x200/ab2515212aa88e71dfc83a63998ba8bea193232b.pnj)
 
-
+𝗧𝗵𝗮𝗻𝗸𝘀 𝗳𝗼𝗿 𝗮𝘁𝘁𝗲𝗻𝘁𝗶𝗼𝗻!
 
 
 
