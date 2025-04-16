@@ -27,7 +27,7 @@
 
 
 
-![я я я](https://github.com/user-attachments/assets/f8e0841a-c9da-42b7-98de-a03155d86a37)
+![ромашки 2](https://github.com/user-attachments/assets/776192ee-f7e2-4411-8297-a180f892b427)
 
 
                                                      
