@@ -27,7 +27,7 @@
 
 
 
-![ромашки 2](https://github.com/user-attachments/assets/dbacccc6-b15c-4760-baf1-ba00fd7d2904)
+![ромашки 2](https://github.com/user-attachments/assets/db6e7c9b-094e-4cdf-8210-0c4273c482fb)
 
 
                                                      
