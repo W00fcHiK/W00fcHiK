@@ -15,7 +15,7 @@
 
 ![](https://64.media.tumblr.com/8eb5b01466ced72113f21f2380f49938/8fa898046db9fd10-e0/s250x400/0ecba2d4f620f063be2d1bfe609e57fc01628625.gifv)
 
-ミ★ Typologies: infj-t, sx5w4sp, 529, melancholic-sanguine. ★彡
+ミ★ Typologies: infj-t, sx5w4so, 521, melancholic-sanguine. ★彡
 
 𝗙𝗮𝗻𝗱𝗼𝗺𝘀: 𝘁𝗼𝗼 𝗹𝗮𝘇𝘆 𝘁𝗼 𝘄𝗿𝗶𝘁𝗲...
 
